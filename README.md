@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shadowshredder
 - 👀 I’m interested in DATA ANALYSIS
-- 🌱 I’m currently learning ENGINEERING
+- 🌱 I’m currently doing my ENGINEERING
 - 💞️ I’m looking to collaborate on INTERSHIPS AND FREELANCING
 - 📫 How to reach me MAILID:gayu07msd@gmail.com
 
